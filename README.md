@@ -1,3 +1,3 @@
-# gokayburucweblog
+# README
 
-asdasdasda
+THIS IS JUST A PERSONAL BLOG
