@@ -24,3 +24,4 @@ Aşağıda size ücretsiz olarak erişebileceğiniz Almanca kaynaklarının link
 
 **ALMANCA FİİL ÇEKİMLEMELERİ**
 [VERBFORMEN.COM](https://www.verbformen.com/conjugation/)
+
